@@ -1,4 +1,4 @@
-# 
+# Get the ultimate nft trading bot with automatic nft trading bot | real-time-monitoring + royalty-calculator. Featuring real-time-monitoring and royalty-calculator, it's the best
 
 
 
